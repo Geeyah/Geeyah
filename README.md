@@ -2,7 +2,7 @@
 - 👀 I’m interested in black people
 - 🌱 I’m currently learning how to fuck your mum
 - 💞️ I’m looking to collaborate on Johny sins
-- 📫 How to reach me cock
+- 📫 How to reach my cock (you cant)
 
 <!---
 Geeyah/Geeyah is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
