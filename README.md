@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Geeyah
 - 👀 I’m interested in black people
 - 🌱 I’m currently learning how to fuck your mum
-- 💞️ I’m looking to collaborate on Johny sins
+- 💞️ I’m looking to collaborate with Johny sins
 - 📫 How to reach my cock (you cant)
 
 <!---
